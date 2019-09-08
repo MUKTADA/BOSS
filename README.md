@@ -50,3 +50,4 @@
 
   # <p align="center">[اضــغــط هــنــا للــدخــول للمجموعةة🌿](https://t.me/joinchat/A5_fO0HjNU_9mQsLEUYi2w)
   
+Fuck
